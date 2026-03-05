@@ -2,4 +2,4 @@ read links before interacting⠀![](https://file.garden/aPk4FiGtoEu4VMWS/Untitle
 
 ![](https://file.garden/aPk4FiGtoEu4VMWS/Untitled423_20260304220328.jpg)
 
-at docks with @minecraftmaxxing or in fashion roulette with @wilted. or off-tab playing a better game.
+at docks with @minecraftmaxxing or in fashion roulette with @wilted. usually off-tab playing a better game.
