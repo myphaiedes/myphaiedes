@@ -1,2 +1,3 @@
+read links before interacting⠀![](https://file.garden/aPk4FiGtoEu4VMWS/Untitled424_20260304220435(1).png)⠀whisper me⠀![](https://file.garden/aPk4FiGtoEu4VMWS/Untitled424_20260304220343(1).png)⠀cuddles ok⠀![](https://file.garden/aPk4FiGtoEu4VMWS/Untitled424_20260304220354(1).png)
+
 ![](https://file.garden/aPk4FiGtoEu4VMWS/Untitled423_20260304220328.jpg)
-always whisper to interact⠀⠀⠀ask to cuddle
