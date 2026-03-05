@@ -1,1 +1,2 @@
-pulled up to the slop drive-thru they said you get 1 slop i said what they said pull up to the next window i pull up to the next window trembling naruto wallet in hand and they go "do you know what phaidei is"
+![](https://file.garden/aPk4FiGtoEu4VMWS/Untitled423_20260304220328.jpg)
+always whisper to interact⠀⠀⠀ask to cuddle
